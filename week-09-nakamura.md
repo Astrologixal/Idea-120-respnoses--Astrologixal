@@ -5,4 +5,4 @@ Week 9 reading
 
 Digitizing Race: Visual Cultures of the Internet
 
-The author Lisa Nakamura begins the introduction by opening the discussion of what the internet has brought and how its affected the world. 
+The author Lisa Nakamura begins the introduction by opening the discussion of what the internet has brought and how its affected the world. There has been key points that has shaped the development of the Internet. 
